@@ -1,0 +1,2 @@
+- Excellent **team player**
+- *Loves* sitting in front of a computer all day
