@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- Reading
+- Listening to podcasts
+- Learning to code
